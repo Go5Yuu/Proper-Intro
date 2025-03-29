@@ -15,3 +15,5 @@
 ۩❦۩¤═══¤ Profic ¤═══¤۩❦۩
 
 ≪ °Read Strawpage ≫ °❈° ≪ Leave a gimmick° ≫
+
+<img width = "65%" src="https://64.media.tumblr.com/ec1557c4b8f6027f53eb7fdcbc5ee13d/74a182caf647fb15-b0/s1280x1920/696a6b7c23f429a668795b2f8cc3e5251190816f.pnj">
