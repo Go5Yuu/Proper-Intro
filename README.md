@@ -5,3 +5,7 @@
 <img width = "65%" src="https://64.media.tumblr.com/2dae6c07f98fe70820912484d2d9c1e9/abd43fd6b15dc4e8-c5/s2048x3072/3a082f05ce96316b535dfc5748464c8c78574a05.jpg">
   
 GO5YUU
+2003
+He/Him
+
+<img width = "55%" src="https://64.media.tumblr.com/258ce04ef8e781c91b2e6e7578213c25/fe819061e7095077-c8/s1280x1920/7204a6554144dd43fa94cc84c49625307465db2f.jpg">
