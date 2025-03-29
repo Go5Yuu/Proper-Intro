@@ -11,3 +11,5 @@
 <img width = "55%" src="https://64.media.tumblr.com/258ce04ef8e781c91b2e6e7578213c25/fe819061e7095077-c8/s1280x1920/7204a6554144dd43fa94cc84c49625307465db2f.jpg">
 
 ─── Chronically AFK ── დ ── Whisp 2 Int ───
+
+۩❦۩¤═══¤ Profic ¤═══¤۩❦۩
